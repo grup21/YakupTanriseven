@@ -1,0 +1,2 @@
+# YakupTanriseven
+Yakuptanrısevn repository
